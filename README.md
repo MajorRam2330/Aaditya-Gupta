@@ -1,2 +1,2 @@
 # Aaditya-Gupta
-i am a coder and a student too
+i am a student and coder too
